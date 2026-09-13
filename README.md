@@ -15,4 +15,6 @@ $\color{#ff0000}{FNF~player}$
 
 I play a lot of games and I have a lot of social medias, probably u will found me in somewhere (except linkedin, i dont have linkedin)
 
-$\color{#ff0000}{sleeps}$
+Transgender & Peruvian
+
+Thearchy #1 Fan
