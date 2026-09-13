@@ -26,3 +26,7 @@ $\color{#ff0000}{DNI(uid)~list}$
 $\color{#ff0000}{Qwel~supporters(dni)}$
 
 Darkshippers, proshippers
+
+$\color{#ff0000}{Problematic~people}$
+
+basic DNI
