@@ -18,3 +18,11 @@ I play a lot of games and I have a lot of social medias, probably u will found m
 Transgender & Peruvian
 
 Thearchy #1 Fan
+
+#
+
+$\color{#ff0000}{DNI(uid)~list}$
+
+$\color{#ff0000}{Qwel~supporters(dni)}$
+
+Darkshippers, proshippers
