@@ -21,6 +21,10 @@ Thearchy #1 Fan
 
 #
 
+  <img src="https://github.com/user-attachments/assets/fac57c41-e34e-4a28-8ddf-6dba52686c0b" alt="Mi imagen centrado (le pregunté a gemini para centrar una imagen)" width="300">
+
+#
+
 $\color{#ff0000}{DNI(uid)~list}$
 
 $\color{#ff0000}{Qwel~supporters(dni)}$
@@ -30,3 +34,7 @@ Darkshippers, proshippers
 $\color{#ff0000}{Problematic~people}$
 
 basic DNI
+
+#
+
+the sunville project its still on work, i guESs i will make it publicc on dECEMBER I HATE DECMEBER
