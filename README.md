@@ -21,7 +21,7 @@ Thearchy #1 Fan
 
 #
 
-  <img src="https://github.com/user-attachments/assets/fac57c41-e34e-4a28-8ddf-6dba52686c0b" alt="Mi imagen centrado (le pregunté a gemini para centrar una imagen)" width="300">
+  <img src="https://github.com/user-attachments/assets/fac57c41-e34e-4a28-8ddf-6dba52686c0b" alt="Mi imagen centrado (le pregunté a gemini para centrar una imagen)" width="250">
 
 #
 
@@ -35,8 +35,12 @@ $\color{#ff0000}{Problematic~people}$
 
 basic DNI
 
+$\color{#ff0000}{Alnst~fandom(iwec)}$
+
 #
 
 the sunville project its still on work, i guESs i will make it publicc on dECEMBER I HATE DECMEBER
 
 lalal aAA
+
+jugador de 200 horas de the binding of isaac ahhaAHAAJAJAJA AMEDUELENLOSJOJSO
