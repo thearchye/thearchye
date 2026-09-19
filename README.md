@@ -43,4 +43,4 @@ the sunville project its still on work, i guESs i will make it publicc on dECEMB
 
 lalal aAA
 
-jugador de 200 horas de the binding of isaac ahhaAHAAJAJAJA AMEDUELENLOSJOJSO
+rompeteclados en fnf jejejeajJKAJKAJA SE VOLVIO A ROMPER LA TECLA ABAJO oh nvm
